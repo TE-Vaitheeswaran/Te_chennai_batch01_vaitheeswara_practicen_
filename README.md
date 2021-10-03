@@ -1,1 +1,1 @@
-# Te_chennai_batch01_vaitheeswara_practicen_
+# Te_chennai_Batch01_Vaitheeswara_Assignments
